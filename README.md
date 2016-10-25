@@ -1,2 +1,1 @@
-# first-project
-test
+3d Ğı×ªÄ¾Âí
